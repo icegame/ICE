@@ -1,1 +1,1 @@
-Suck my dick
+Very nice readme.
